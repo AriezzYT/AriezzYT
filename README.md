@@ -2,4 +2,4 @@
 - 👀 I’m interested in coding.
 - 🌱 I’m currently learning C#
 - 📫 How to reach me - Discord = AriezYT#1103
-- 🌐 Fourm - ariez.cf
+- 🌐 Bio: e-z.bio/kys and ariez.is-a.dev
